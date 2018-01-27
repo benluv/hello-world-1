@@ -3,4 +3,4 @@
 
 Hi my name is Brendan.
 
-I am an actor and computer programmer. Two opposite ends of the job spectrum.
+I am a software developer. I have been away finishing up school. I will be posting recent work soon. 
